@@ -1,1 +1,0 @@
-# politica-privacidad-app-04-2000
